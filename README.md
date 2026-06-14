@@ -43,4 +43,4 @@
 ## 📬 Связаться со мной
 
 * **Email:** [eminaliyev928@gmail.com](mailto:eminaliyev928@gmail.com)
-* **LinkedIn:** [[linkedin.com/in/yourprofile](https://linkedin.com](https://www.linkedin.com/in/emin-aliyev-5948742b0/)) 
+* **LinkedIn:** [[[linkedin.com/in/yourprofile](https://www.linkedin.com/in/emin-aliyev-5948742b0/)](https://linkedin.com](https://www.linkedin.com/in/emin-aliyev-5948742b0/)) 
